@@ -1,4 +1,4 @@
-### Hi there 👋
+### self-taught sustainable energy engineer, data science rookie, and general creative
 
 <!--
 **golevka6489/golevka6489** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
